@@ -7,7 +7,7 @@ AI cover letter
 ITPM _Jayasundara HWSS
 IT22553096
 3rd year
-ABC
+AB
 
 
 IT22135902
